@@ -29,4 +29,4 @@ Banyak testimoni positif dari para penghuni yang telah merasakan manfaat tinggal
 
 Jangan sampai ketinggalan! Ini adalah saat yang tepat untuk memiliki hunian impian di Citra Garden Bintaro. Dengan pilihan unit terbatas dan harga yang terus meningkat, segera ambil keputusan sekarang juga!
 
-📞 Hubungi kami di [nomor kontak] atau kunjungi [website] untuk mendapatkan penawaran spesial dan jadwalkan kunjungan ke lokasi!
+📞 Hubungi kami  [[[website]](https://bintarocitragarden.com/)](https://bintarocitragarden.com/) untuk mendapatkan penawaran spesial dan jadwalkan kunjungan ke lokasi!
